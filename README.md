@@ -1,2 +1,3 @@
 # hello-world
 Newbie probz as always...
+I'm tryin' my best but i can't do sth lol. I hope won't give up. 23 Sept 17 Sat, 15:31
